@@ -8,3 +8,9 @@ holy bible money scripture wisdom treasury verse teaching parable resource wealt
 
 
 Luke 12:34
+
+
+
+https://get.tithe.ly/blog/bible-verses-about-money
+
+https://engiven.com/tithelypromo/
