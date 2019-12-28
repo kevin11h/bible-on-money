@@ -11,6 +11,7 @@ Luke 12:34
 
 
 
+# References
 https://get.tithe.ly/blog/bible-verses-about-money
 
 https://engiven.com/tithelypromo/
